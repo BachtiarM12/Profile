@@ -1,5 +1,5 @@
 # Hi!👋 
-I am **Bach**.\
+I am **Bachtiar**.\
 A **graduate** from Archive Records Management and **student** in Mathematics [University If Indonesia and Terbuka University]([https://www.ui.ac.id/] [https://www.ut.ac.id/]). <br>
 
 <p align="left">
